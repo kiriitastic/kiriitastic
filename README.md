@@ -1,11 +1,13 @@
-## 🐚 .... ᗢ ; ꕀ  ⟢
+<p align="center"> 🐚  ᗢ ; ꕀ  ⟢
 
 
-<img width="1196" height="495" alt="Screenshot 2026-01-13 at 4 41 25 PM" src="https://github.com/user-attachments/assets/4b9e1c54-1a04-4a81-8283-428bde4f0f70" />
+<p align="center"> <img width="400" height="342" src="https://github.com/user-attachments/assets/4b9e1c54-1a04-4a81-8283-428bde4f0f70">
+  
+<p align="center"> ᴛʜᴇ ɢʀᴇᴀᴛ ᴍᴏᴛʜᴇʀ ʜᴏʟᴅꜱ ᴀʟʟ ʜᴇʀ ᴄʜɪʟᴅʀᴇɴ
+<p align="center"> ɪɴ ʜᴇʀ ʜᴇᴀʀᴛ 
 
 
-                                                ᴛʜᴇ ɢʀᴇᴀᴛ ᴍᴏᴛʜᴇʀ ʜᴏʟᴅꜱ ᴀʟʟ ʜᴇʀ ᴄʜɪʟᴅʀᴇɴ
-                                                             ɪɴ ʜᴇʀ ʜᴇᴀʀᴛ 
+<p align="center"> Strawpage : https://evelynhofferson.straw.page/
 
 
-Strawpage : https://kiriitastic.straw.page
+<p align="center"> <img width="600" height="200" alt="image" src="https://github.com/user-attachments/assets/4ca86784-e944-44a2-9410-bae2a3b7813f" />
