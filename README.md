@@ -7,7 +7,6 @@
 <p align="center"> ɪɴ ʜᴇʀ ʜᴇᴀʀᴛ 
 
 
-<p align="center"> Strawpage : https://evelynhofferson.straw.page/
 
 
 <p align="center"> <img width="600" height="200" alt="image" src="https://github.com/user-attachments/assets/4ca86784-e944-44a2-9410-bae2a3b7813f" />
